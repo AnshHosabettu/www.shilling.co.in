@@ -9,7 +9,7 @@ Founded in **2022**, we specialize in **organic extra virgin coconut oils** craf
 
 ## 🛍️ Shop Our Products
 We offer a variety of coconut-based products, including:
-- *Organic Extra Virgin Coconut Oil**
+- **Organic Extra Virgin Coconut Oil**
 - **Baby Care Massage Oil (With Wheat Germ Oil)**
 - **Dry Coconut Powder**
 - **Virgin Coconut Hair Oil (With Vitamin E)**
